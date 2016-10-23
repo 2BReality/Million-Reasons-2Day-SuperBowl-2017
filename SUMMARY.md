@@ -1,9 +1,5 @@
 # Summary
 
-## Overview
-
-* [My Awesome API](README.md)
-
-## Methods
-
+* [2BReality API](README.md)
 * [Defining Methods](methods.md)
+
