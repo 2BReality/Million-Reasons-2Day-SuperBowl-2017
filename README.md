@@ -1,5 +1,5 @@
 # 2BReality API
-# [2BReality](http://www.2breality.com/) / [The Great Dictator](https://youtu.be/V1fMvLbE85E) [2BNews](http://www.2breality.com/2BNews.aspx)
+# [2BReality](http://www.2breality.com/) / [The Great Dictator](https://youtu.be/V1fMvLbE85E) / [2BNews](http://www.2breality.com/2BNews.aspx)
  ## 15 Days till we vote for the World.
  Is This Really [Reality of the World 2Day](https://news.google.com/nwshp?hl=en&tab=wn). [The World 2gether](https://www.google.com/search?q=2BReality+21+Days+till+we+vote+for+the+World.&oq=2BReality++21+Days+till+we+vote+for+the+World.&aqs=chrome..69i57j69i64&sourceid=chrome&ie=UTF-8).  [The World Needs a Novel on this one 2016 Election](http://www.nbcnews.com/news/us-news/billy-bush-leaving-today-show-effective-immediately-n667936) 2Day.
  Let's create the Worlds Reality; [2Day2GethersoBeIt](https://www.youtube.com/watch?v=Nz8atO-7aWA). [Will Flip4U:)](https://www.elance.com/samples/boston-2day-2breality-boston/127985550/#posSlide)  Together where reality meets the road. If you are reading this than we are doing [Code Review](https://en.wikipedia.org/wiki/Code_review). Can "We" help make 2Morrow, **2Morrow better 2Gether**? 2Throw out is 2Not Have. [Wiki/Application_programming_interface](https://en.wikipedia.org/wiki/Application_programming_interface)
