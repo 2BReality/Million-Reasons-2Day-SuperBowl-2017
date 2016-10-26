@@ -1,6 +1,6 @@
 # 2BReality API
 # [2BReality](http://www.2breality.com/) / [The Great Dictator](https://youtu.be/V1fMvLbE85E) / [2BNews](http://www.2breality.com/2BNews.aspx) 
-![https://www.pandora.com/station/play/2270540294999927377](button43.gif)
+![https://www.pandora.com/station/play/2270540294999927377](button43.gif)[Y Bother](http://www.2breality.com/)
 ##[2breality-api/discussions/1](https://www.gitbook.com/book/2breality/2breality-api/discussions/1)
 
  Is This Really [Reality of the World 2Day](https://news.google.com/nwshp?hl=en&tab=wn). [The World 2gether](https://www.google.com/search?q=2BReality+21+Days+till+we+vote+for+the+World.&oq=2BReality++21+Days+till+we+vote+for+the+World.&aqs=chrome..69i57j69i64&sourceid=chrome&ie=UTF-8).  [The World Needs a Novel on this one 2016 Election](http://www.nbcnews.com/news/us-news/billy-bush-leaving-today-show-effective-immediately-n667936) 2Day. [It's a hard knock life](https://youtu.be/-0bOH8ABpco)
