@@ -1,5 +1,5 @@
 # 2BReality API [2breality](http://www.2breality.com/)
-2Days Reality, [](C:\Users\2BReality\Pictures\Picasa\Screen Captures\Fullscreen capture 1192016 81140 PM.bmp) # [2BReality](http://www.2breality.com/) / [Day 6](http://www.2breality.com/) [The Great Dictator](https://youtu.be/V1fMvLbE85E) /Trump, Pence pitch Obamacare repeal a week from election - http://goo.gl/news/sRdOl via http://news.google.com/ What a way to Buy Americia 2016 How to Buy America:
+2Days Reality, [HELLO R U There](C:\Users\2BReality\Pictures\Picasa\Screen Captures\Fullscreen capture 1192016 81140 PM.bmp) # [2BReality](http://www.2breality.com/) / [Day 6](http://www.2breality.com/) [The Great Dictator](https://youtu.be/V1fMvLbE85E) /Trump, Pence pitch Obamacare repeal a week from election - http://goo.gl/news/sRdOl via http://news.google.com/ What a way to Buy Americia 2016 How to Buy America:
 The billionaire businessman also threatened that, if Republicans don’t come together, he was prepared to stop fundraising and go back to largely self-funding his campaign.
  https://www.washingtonpost.com/politics/trump-it-would-be-helpful-if-republicans-would-help-him/2016/06/18/a76bd4b0-358b-11e6-ab9d-1da2b0f24f93_story.html
  
