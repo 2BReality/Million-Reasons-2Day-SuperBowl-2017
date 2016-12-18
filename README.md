@@ -4,6 +4,8 @@
 
 # 2BReality API [2breality](http://www.2breality.com/)
 
+[Is Google Reality? ](https://news.google.com/nwshp?hl=en&tab=wn)
+
 [B-T.Energy/Ventures/](http://www.b-t.energy/)
 
 [The Neistat Brothers Episode 1](https://youtu.be/9qrR3xd4730), [2](https://youtu.be/9W8kdVPzZgc), [3](https://youtu.be/ZvIPWLoL5qc), [4](https://youtu.be/QcY79qpzCNM), [5](https://youtu.be/H_iJQhquX-4), [6](https://youtu.be/eLbidfog1l8), [7](https://youtu.be/cA-1U6-5BrQ), [8](https://youtu.be/gba7t-dmPis)
@@ -94,7 +96,7 @@ Is it time to put a Fence at the end of the Driveway?
  20160918; 12:57 Let's Play with Reality : [1112223332Day](https://www.google.com/webhp?hl=en&tab=nw#newwindow=1&hl=en&q=2breality)  
  20160918; 11:23 [2BRNews2](http://www.2breality.com/2brnews2.html), 2 Much Characters for [@Tiwtter](https://twitter.com/) so might as well put it here: [birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow](AM 2BReality birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow, Thank You.)
 
-20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis        
+20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis          
  ](http://topdocumentaryfilms.com/the-nazis-a-warning-from-history/)-warning-from-history/
 
 Yeah the winner of 911 2016, the DNC: [Hillary Clinton](https://www.google.com/search?hl=en&gl=us&tbm=nws&authuser=0&q=11+september+2016&oq=11+september+2016&gs_l=news-cc.1.0.43j43i53.94715.109886.0.112874.21.5.2.14.14.0.141.647.0j5.5.0...0.0...1ac.1.UuAu4iqHBzE#q=11+september+2016&newwindow=1&hl=en&gl=us&authuser=0)  
