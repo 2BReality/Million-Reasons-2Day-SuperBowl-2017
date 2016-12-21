@@ -6,11 +6,17 @@
 
 [Is Google Reality? ](https://news.google.com/nwshp?hl=en&tab=wn)
 
+```
+<blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Thinking 2Deep 4 SmartPhone, so say Anyone. <a href="https://t.co/i7yznLlyzd">https://t.co/i7yznLlyzd</a></p>&mdash; 2BReality.com (@2BReality) <a href="https://twitter.com/2BReality/status/811389669149732864">December 21, 2016</a></blockquote>
+<script async src="//platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+```
+
 [B-T.Energy/Ventures/](http://www.b-t.energy/)
 
 [The Neistat Brothers Episode 1](https://youtu.be/9qrR3xd4730), [2](https://youtu.be/9W8kdVPzZgc), [3](https://youtu.be/ZvIPWLoL5qc), [4](https://youtu.be/QcY79qpzCNM), [5](https://youtu.be/H_iJQhquX-4), [6](https://youtu.be/eLbidfog1l8), [7](https://youtu.be/cA-1U6-5BrQ), [8](https://youtu.be/gba7t-dmPis)
 
-2Days Reality, [HELLO R U There](C:\Users\2BReality\Pictures\Picasa\Screen Captures\Fullscreen capture 1192016 81140 PM.bmp) \# [2BReality](http://www.2breality.com/)    
+2Days Reality, [HELLO R U There](C:\Users\2BReality\Pictures\Picasa\Screen Captures\Fullscreen capture 1192016 81140 PM.bmp) \# [2BReality](http://www.2breality.com/)  
  Is This Really [Reality of the World 2Day](https://news.google.com/nwshp?hl=en&tab=wn). [The World 2gether](https://www.google.com/search?q=2BReality+21+Days+till+we+vote+for+the+World.&oq=2BReality++21+Days+till+we+vote+for+the+World.&aqs=chrome..69i57j69i64&sourceid=chrome&ie=UTF-8).  [The World Needs a Novel on this one 2016 Election](http://www.nbcnews.com/news/us-news/billy-bush-leaving-today-show-effective-immediately-n667936) 2Day. [It's a hard knock life](https://youtu.be/-0bOH8ABpco)  
  Let's create the Worlds Reality; [2Day2GethersoBeIt](https://www.youtube.com/watch?v=Nz8atO-7aWA). [Will Flip4U:\)](https://www.elance.com/samples/boston-2day-2breality-boston/127985550/#posSlide)  Together where reality meets the road. If you are reading this than we are doing [Code Review](https://en.wikipedia.org/wiki/Code_review). Can "We" help make 2Morrow, **2Morrow better 2Gether**? 2Throw out is 2Not Have. [Wiki/Application\_programming\_interface](https://en.wikipedia.org/wiki/Application_programming_interface)
 
@@ -91,7 +97,7 @@ Is it time to put a Fence at the end of the Driveway?
  20160918; 12:57 Let's Play with Reality : [1112223332Day](https://www.google.com/webhp?hl=en&tab=nw#newwindow=1&hl=en&q=2breality)  
  20160918; 11:23 [2BRNews2](http://www.2breality.com/2brnews2.html), 2 Much Characters for [@Tiwtter](https://twitter.com/) so might as well put it here: [birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow](AM 2BReality birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow, Thank You.)
 
-20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis            
+20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis              
  ](http://topdocumentaryfilms.com/the-nazis-a-warning-from-history/)-warning-from-history/
 
 Yeah the winner of 911 2016, the DNC: [Hillary Clinton](https://www.google.com/search?hl=en&gl=us&tbm=nws&authuser=0&q=11+september+2016&oq=11+september+2016&gs_l=news-cc.1.0.43j43i53.94715.109886.0.112874.21.5.2.14.14.0.141.647.0j5.5.0...0.0...1ac.1.UuAu4iqHBzE#q=11+september+2016&newwindow=1&hl=en&gl=us&authuser=0)  
