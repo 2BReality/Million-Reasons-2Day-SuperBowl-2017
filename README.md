@@ -4,10 +4,7 @@
 
 # 2BReality API [2breality](http://www.2breality.com/)
 
-```
-Merry Christmas 2016 <blockquote class="twitter-tweet" data-lang="en"><p lang="et" dir="ltr">Merry Christmas 2016 <a href="https://t.co/oFFOSyEj94">https://t.co/oFFOSyEj94</a><br> <a href="https://twitter.com/hashtag/Pandora?src=hash">#Pandora</a></p>&mdash; 2BReality.com (@2BReality) <a href="https://twitter.com/2BReality/status/812640353454952448">December 24, 2016</a></blockquote>
-<script async src="//platform.twitter.com/widgets.js" charset="utf-8"></script>
-```
+# [Merry Christmas 2016](https://www.pandora.com/station/play/3448577995259669073)
 
 [Is Google Reality? ](https://news.google.com/nwshp?hl=en&tab=wn)![](/assets/2BReality Google News 12222016 51959 PM60x.jpg)
 
@@ -100,7 +97,7 @@ Is it time to put a Fence at the end of the Driveway?
  20160918; 12:57 Let's Play with Reality : [1112223332Day](https://www.google.com/webhp?hl=en&tab=nw#newwindow=1&hl=en&q=2breality)  
  20160918; 11:23 [2BRNews2](http://www.2breality.com/2brnews2.html), 2 Much Characters for [@Tiwtter](https://twitter.com/) so might as well put it here: [birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow](AM 2BReality birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow, Thank You.)
 
-20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis                                    
+20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis                                      
  ](http://topdocumentaryfilms.com/the-nazis-a-warning-from-history/)-warning-from-history/
 
 Yeah the winner of 911 2016, the DNC: [Hillary Clinton](https://www.google.com/search?hl=en&gl=us&tbm=nws&authuser=0&q=11+september+2016&oq=11+september+2016&gs_l=news-cc.1.0.43j43i53.94715.109886.0.112874.21.5.2.14.14.0.141.647.0j5.5.0...0.0...1ac.1.UuAu4iqHBzE#q=11+september+2016&newwindow=1&hl=en&gl=us&authuser=0)  
