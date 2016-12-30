@@ -2,7 +2,7 @@
 2BReality API-1: null
 ---
 
-# 2BReality API [2breality](http://www.2breality.com/)
+# 2BReality API [2breality](http://www.2breality.com/) 161230
 
 # ![](/assets/Google is What 2Day 12262016 82337 PM.jpg)
 
@@ -60,8 +60,7 @@ Water Power is the Way to Go! [Before the Flood 2016](https://www.beforetheflood
 [\[ Good Luck East Coast USA.\]](http://www.space.com/34322-hurricane-matthew-international-space-station-video.html)  
 161006: [2BGit](https://github.com/2BReality/2breality2#2bgit), [Git Basics Episode 1](https://git-scm.com/video/what-is-version-control), [2BRNews](https://www.google.com/search?q=2BRNews.html&oq=2BRNews.html&aqs=chrome..69i57j69i61j69i60l2&sourceid=chrome&ie=UTF-8), [Days till Christmas](http://www.xmasclock.com/),  
 161004: [2BReality \| Facebook](https://www.facebook.com/2BReality/)  
-[Google Home](https://madeby.google.com/home/) 2Day, What Security?  
-
+[Google Home](https://madeby.google.com/home/) 2Day, What Security?
 
 [2016 Story American Film Institute ](https://youtu.be/vC_1-MpSPL8)[Good Day 2All](https://youtu.be/bESGLojNYSo)  
 [Best 4Now:](http://www.spacex.com/)  
@@ -84,7 +83,7 @@ Is it time to put a Fence at the end of the Driveway?
  20160918; 12:57 Let's Play with Reality : [1112223332Day](https://www.google.com/webhp?hl=en&tab=nw#newwindow=1&hl=en&q=2breality)  
  20160918; 11:23 [2BRNews2](http://www.2breality.com/2brnews2.html), 2 Much Characters for [@Tiwtter](https://twitter.com/) so might as well put it here: [birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow](AM 2BReality birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow, Thank You.)
 
-20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis                                                  
+20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis                                                    
  ](http://topdocumentaryfilms.com/the-nazis-a-warning-from-history/)-warning-from-history/
 
 Shall we drink Prune Juice or eat Pizza: The world need to decide: [@2BReality](https://twitter.com/2BReality) LoL  
