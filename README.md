@@ -46,21 +46,12 @@ Water Power is the Way to Go! [Before the Flood 2016](https://www.beforetheflood
 
 # [2BReality20160911.](http://www.2breality.com/2breality20160911.html)
 
-What was Donald's last really good week? Really because the World hasn't a clue, with the garbage he is pushing. Hump the Dog & spread it out sideway, Go @HillaryClinton What was Donald's last really good week? Really because the World hasn't a clue, with the garbage he is pushing. Hump the Dog & spread it out sideway, Go @HillaryClinton
-
-### Live? 2Morrow will be.
-
-## **\_**[Tomorrow Tomorrow](https://youtu.be/Yop62wQH498)
+[Tomorrow Tomorrow](https://youtu.be/Yop62wQH498)
 
 [Pay 2BReality — Square Cash  
  Instantly send money between friends or accept card payments for your business. Money deposits directly to your bank account.](https://cash.me/$2BReality)
 
-### [Is this the Rough Riders of the Year Two Thousand Sixteen](https://youtu.be/0nDCVfnYBhk)? [4POTUS](https://twitter.com/hashtag/4potus)
-
-[VIDEO - Donald Trump Caught on Hot Mic Bragging About Sexual Exploits - ‘ Grab em by the Pussy ’](https://youtu.be/24ofBPMC1h8)  
-[Donald-Trump-Women-Vulgar](http://www.cnn.com/2016/10/07/politics/donald-trump-women-vulgar/)  &  [Donald\_Trump\_Family\_History](http://www.2breality.com/donald_trump_family_history.html)
-
-[Y because "WE" Can.](https://2breality.gitbooks.io/2breality/content/)
+### [Y because "WE" Can.](https://2breality.gitbooks.io/2breality/content/)
 
 [Poor infrastructure](http://www.cnbc.com/2016/10/06/train-that-crashed-in-hoboken-was-going-twice-the-speed-limit-investigators-say.html), & Someone wants to build a wall? In the desert. Ba hum bug. A few turrets would do just fine if need be, Hello, 21st Century technology with a few neon signs with audio & video too should save the USA a few billion in taxpayer dollars.  21st Century Reality! Not one specific of the wall.
 
@@ -101,7 +92,7 @@ Is it time to put a Fence at the end of the Driveway?
  20160918; 12:57 Let's Play with Reality : [1112223332Day](https://www.google.com/webhp?hl=en&tab=nw#newwindow=1&hl=en&q=2breality)  
  20160918; 11:23 [2BRNews2](http://www.2breality.com/2brnews2.html), 2 Much Characters for [@Tiwtter](https://twitter.com/) so might as well put it here: [birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow](AM 2BReality birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow, Thank You.)
 
-20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis                                              
+20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis                                                
  ](http://topdocumentaryfilms.com/the-nazis-a-warning-from-history/)-warning-from-history/
 
 Yeah the winner of 911 2016, the DNC: [Hillary Clinton](https://www.google.com/search?hl=en&gl=us&tbm=nws&authuser=0&q=11+september+2016&oq=11+september+2016&gs_l=news-cc.1.0.43j43i53.94715.109886.0.112874.21.5.2.14.14.0.141.647.0j5.5.0...0.0...1ac.1.UuAu4iqHBzE#q=11+september+2016&newwindow=1&hl=en&gl=us&authuser=0)  
