@@ -6,6 +6,8 @@
 
 # [Take a Look Back](https://youtu.be/87ajKSGwA0k); [3 September 2016 ](/ http://www.2breality.com/2brnews6.htm)E[volution is a funny thing.](http://www.2breality.com/)
 
+# [30 December 2016, Happy Birthday Devin, I am Very Proud of U.](http://www.2breality.com/robots.txt)
+
 # ![](/assets/Google is What 2Day 12262016 82337 PM.jpg)
 
 # [Merry Christmas 2016](https://www.pandora.com/station/play/3448577995259669073)
@@ -85,7 +87,7 @@ Is it time to put a Fence at the end of the Driveway?
  20160918; 12:57 Let's Play with Reality : [1112223332Day](https://www.google.com/webhp?hl=en&tab=nw#newwindow=1&hl=en&q=2breality)  
  20160918; 11:23 [2BRNews2](http://www.2breality.com/2brnews2.html), 2 Much Characters for [@Tiwtter](https://twitter.com/) so might as well put it here: [birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow](AM 2BReality birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow, Thank You.)
 
-20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis                                                        
+20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis                                                          
  ](http://topdocumentaryfilms.com/the-nazis-a-warning-from-history/)-warning-from-history/
 
 Shall we drink Prune Juice or eat Pizza: The world need to decide: [@2BReality](https://twitter.com/2BReality) LoL  
