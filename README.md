@@ -2,9 +2,11 @@
 2BReality API-1: null
 ---
 
-# 2BReality API [2breality](http://www.2breality.com/) 20170108
+# 2BReality API [2breality](http://www.2breality.com/) 20170109
 
 # [Propaganda](https://en.wikipedia.org/wiki/Propaganda) @itsFinest: [Anonymous Global](https://www.youtube.com/channel/UC8WViDKvDsaYrX0FDKwEvCw) /or/ [20161024](https://youtu.be/SXG_h765ZBA) /or/ [20170108](https://youtu.be/A0SKxrqEOc4) /or/ [Propaganda @itsWorst ](https://www.washingtonpost.com/news/post-nation/wp/2017/01/08/fort-lauderdale-shooting-suspect-claimed-government-was-controlling-his-mind-months-before-shooting/?utm_term=.da65c1e0dfe9)
+
+## 20170107: [TRUMP JUST SHOWED HIS CARDS -NOW WE KNOW WHO he IS.](https://youtu.be/056SHu82Hy8)
 
 ## 20161230
 
@@ -95,7 +97,7 @@ Is it time to put a Fence at the end of the Driveway?
  20160918; 12:57 Let's Play with Reality : [1112223332Day](https://www.google.com/webhp?hl=en&tab=nw#newwindow=1&hl=en&q=2breality)  
  20160918; 11:23 [2BRNews2](http://www.2breality.com/2brnews2.html), 2 Much Characters for [@Tiwtter](https://twitter.com/) so might as well put it here: [birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow](AM 2BReality birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow, Thank You.)
 
-20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis                                                                                      
+20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis                                                                                        
  ](http://topdocumentaryfilms.com/the-nazis-a-warning-from-history/)-warning-from-history/
 
 Shall we drink Prune Juice or eat Pizza: The world need to decide: [@2BReality](https://twitter.com/2BReality) LoL  
