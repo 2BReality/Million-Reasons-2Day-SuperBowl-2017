@@ -4,30 +4,27 @@
 
 # 2BReality API [2breality](http://www.2breality.com/) 20170111
 
-```
-<blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Who&#39;s looking forward to MR Trump&#39;s Presidency? I Am, I Am:) I Think he will do a very good Job:) Yeah. Hope is here.</p>&mdash; 2BReality.com (@2BReality) <a href="https://twitter.com/2BReality/status/819317742620778497">January 11, 2017</a></blockquote>
-<script async src="//platform.twitter.com/widgets.js" charset="utf-8"></script>
-```
+# [Who's looking forward to MR Trump's Presidency? I Am, I Am:\) I Think he will do a very good Job:\) Yeah. Hope is here.](https://twitter.com/2BReality/status/819317742620778497)
 
-# 20170109
+20170109
 
-# Y, Not; Is Twitter Propaganda 2017 at it's finest 2Day? You may want to ask Russia. For It May not know what 2morrow will B&gt; 2 Chase the Tail may run U in Circles. Lol!
+Y, Not; Is Twitter Propaganda 2017 at it's finest 2Day? You may want to ask Russia. For It May not know what 2morrow will B&gt; 2 Chase the Tail may run U in Circles. Lol!
 
-# @HiTechWorldNews @PoliticsNewz My Son took Alexa to College after Winter Break. Alexa was like a child that did not know shit. I will wait a year before I Try Again. What a Waste of the World's Reality 2 Day End Result.
+@HiTechWorldNews @PoliticsNewz My Son took Alexa to College after Winter Break. Alexa was like a child that did not know shit. I will wait a year before I Try Again. What a Waste of the World's Reality 2 Day End Result.
 
-# Trump's son-in-law, Jared Kushner, to join White House as senior adviser; no formal role for Ivanka Trump - [http://goo.gl/news/A32qc](http://goo.gl/news/A32qc) via [http://news.google.com/](http://news.google.com/) Do A Good Job 4 The World.
+Trump's son-in-law, Jared Kushner, to join White House as senior adviser; no formal role for Ivanka Trump - [http://goo.gl/news/A32qc](http://goo.gl/news/A32qc) via [http://news.google.com/](http://news.google.com/) Do A Good Job 4 The World.
 
-# 2BReality Doesn't know where "we" are going with this thought. But it is most likely not 144 characters, adios to Twitter sobeit. Here we are in 2017.
+2BReality Doesn't know where "we" are going with this thought. But it is most likely not 144 characters, adios to Twitter sobeit. Here we are in 2017.
 
-# Maybe if everyone that wants to send their thought's & Dreams & priorities to a database where "your" priority could be added to the priority list for the World today.
+Maybe if everyone that wants to send their thought's & Dreams & priorities to a database where "your" priority could be added to the priority list for the World today.
 
-# Where your thoughts & dreams don't go unheard or unnoticed, but become part of a list of priorities for the interactive World to Day. Would it not be nice to know where your Thoughts, Priorities, dreams compare with the Reality of the World today. To Work Together to Make the World Better For "ALL".  By prioritizing the Thoughts Dreams & Priorities of "US" "ALL" 4 What A List It Would B:\)
+Where your thoughts & dreams don't go unheard or unnoticed, but become part of a list of priorities for the interactive World to Day. Would it not be nice to know where your Thoughts, Priorities, dreams compare with the Reality of the World today. To Work Together to Make the World Better For "ALL".  By prioritizing the Thoughts Dreams & Priorities of "US" "ALL" 4 What A List It Would B:\)
 
-# [Propaganda](https://en.wikipedia.org/wiki/Propaganda) @itsFinest: [Anonymous Global](https://www.youtube.com/channel/UC8WViDKvDsaYrX0FDKwEvCw) /or/ [20161024](https://youtu.be/SXG_h765ZBA) /or/ [20170108](https://youtu.be/A0SKxrqEOc4) /or/ [Propaganda @itsWorst ](https://www.washingtonpost.com/news/post-nation/wp/2017/01/08/fort-lauderdale-shooting-suspect-claimed-government-was-controlling-his-mind-months-before-shooting/?utm_term=.da65c1e0dfe9)
+[Propaganda](https://en.wikipedia.org/wiki/Propaganda) @itsFinest: [Anonymous Global](https://www.youtube.com/channel/UC8WViDKvDsaYrX0FDKwEvCw) /or/ [20161024](https://youtu.be/SXG_h765ZBA) /or/ [20170108](https://youtu.be/A0SKxrqEOc4) /or/ [Propaganda @itsWorst ](https://www.washingtonpost.com/news/post-nation/wp/2017/01/08/fort-lauderdale-shooting-suspect-claimed-government-was-controlling-his-mind-months-before-shooting/?utm_term=.da65c1e0dfe9)
 
-## 20170107: [TRUMP JUST SHOWED HIS CARDS -NOW WE KNOW WHO he IS.](https://youtu.be/056SHu82Hy8)
+20170107: [TRUMP JUST SHOWED HIS CARDS -NOW WE KNOW WHO he IS.](https://youtu.be/056SHu82Hy8)
 
-## 20161230
+20161230
 
 # ![](/assets/Google 1st Day 2017 112017 71627 PM.jpg)
 
@@ -116,7 +113,7 @@ Is it time to put a Fence at the end of the Driveway?
  20160918; 12:57 Let's Play with Reality : [1112223332Day](https://www.google.com/webhp?hl=en&tab=nw#newwindow=1&hl=en&q=2breality)  
  20160918; 11:23 [2BRNews2](http://www.2breality.com/2brnews2.html), 2 Much Characters for [@Tiwtter](https://twitter.com/) so might as well put it here: [birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow](AM 2BReality birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow, Thank You.)
 
-20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis                                                                                                        
+20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis                                                                                                          
  ](http://topdocumentaryfilms.com/the-nazis-a-warning-from-history/)-warning-from-history/
 
 Shall we drink Prune Juice or eat Pizza: The world need to decide: [@2BReality](https://twitter.com/2BReality) LoL  
