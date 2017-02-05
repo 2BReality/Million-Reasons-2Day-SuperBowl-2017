@@ -4,7 +4,12 @@
 
 # ![](/assets/2BReality Logo2.gif)
 
-# 2BReality API [2breality](http://www.2breality.com/) 2/5/2017
+# 2BReality API [2breality](http://www.2breality.com/) 2/5/2017 
+
+```
+<blockquote class="twitter-tweet" data-lang="en"><p lang="en" dir="ltr">Million Reasons 2Day SuperBowl 2017 <a href="https://t.co/N4zwGV6dyU">https://t.co/N4zwGV6dyU</a>😀</p>&mdash; 2BReality.com (@2BReality) <a href="https://twitter.com/2BReality/status/828177688850530304">February 5, 2017</a></blockquote>
+<script async src="//platform.twitter.com/widgets.js" charset="utf-8"></script>
+```
 
 # 2/2/2017-2
 
@@ -139,7 +144,7 @@ Is it time to put a Fence at the end of the Driveway?
  20160918; 12:57 Let's Play with Reality : [1112223332Day](https://www.google.com/webhp?hl=en&tab=nw#newwindow=1&hl=en&q=2breality)  
  20160918; 11:23 [2BRNews2](http://www.2breality.com/2brnews2.html), 2 Much Characters for [@Tiwtter](https://twitter.com/) so might as well put it here: [birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow](AM 2BReality birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow, Thank You.)
 
-20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis                                                                                                                                                                  
+20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis                                                                                                                                                                    
  ](http://topdocumentaryfilms.com/the-nazis-a-warning-from-history/)-warning-from-history/
 
 Shall we drink Prune Juice or eat Pizza: The world need to decide: [@2BReality](https://twitter.com/2BReality) LoL  
