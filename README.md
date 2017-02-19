@@ -4,11 +4,11 @@
 
 # ![](/assets/2BReality Logo2.gif) The World Working Together\_\_\_\_\_\_\_\_,4Ever. 2/19/2017
 
-|  |  |  |  |
-| :--- | :--- | :--- | :--- |
-|  |  |  | 2BReality |
-|  |  |  | [www.2breality.com/](https://www.google.com/search?q=2BReality+21+Days+till+we+vote+for+the+World.&oq=2BReality++21+Days+till+we+vote+for+the+World.&aqs=chrome..69i57j69i64&sourceid=chrome&ie=UTF-8#newwindow=1&q=2BReality+) |
-|  |  | [Wiki/Conflict\_between\_good\_and\_evil](https://en.wikipedia.org/wiki/Conflict_between_good_and_evil) · [2BReality Photos Reflection of one self.](https://www.dropbox.com/s/64pj8qxt4hhufn1/Relfection%20of%20one%20self.JPG?dl=0#) The AI is here Almost 1511091952. [Wiki/The\_World\_\(Internet\_service\_provider ...](https://en.wikipedia.org/wiki/The_World_(Internet_service_provider)) | [wiki/HTML](https://en.wikipedia.org/wiki/HTML) |
+|  |  |  |  |  |  |  |  |
+| :--- | :--- | :--- | :--- | :--- | :--- | :--- | :--- |
+|  |  |  |  |  |  |  | 2BReality |
+|  |  |  |  |  |  |  | [www.2breality.com/](https://www.google.com/search?q=2BReality+21+Days+till+we+vote+for+the+World.&oq=2BReality++21+Days+till+we+vote+for+the+World.&aqs=chrome..69i57j69i64&sourceid=chrome&ie=UTF-8#newwindow=1&q=2BReality+) |
+|  | [2BReality is but a moment, but to Feed the World is 4Ever.](https://plus.google.com/117067996559380211245/posts/JkZp8YrBnGL) |  |  | 2BReality | 4 days ago - 2BReality is but a moment, but to Feed the World is 4Ever. | [Wiki/Conflict\_between\_good\_and\_evil](https://en.wikipedia.org/wiki/Conflict_between_good_and_evil) · [2BReality Photos Reflection of one self.](https://www.dropbox.com/s/64pj8qxt4hhufn1/Relfection%20of%20one%20self.JPG?dl=0#) The AI is here Almost 1511091952. [Wiki/The\_World\_\(Internet\_service\_provider ...](https://en.wikipedia.org/wiki/The_World_(Internet_service_provider)\) | [wiki/HTML](https://en.wikipedia.org/wiki/HTML) |
 
 # 2BReality API [2breality](http://www.2breality.com/) 2/15/2017 Andrew Puzder Withdraws From Consideration as Labor Secretary - [http://goo.gl/news/dV12q](https://www.nytimes.com/2017/02/15/us/politics/andrew-puzder-withdrew-labor-secretary.html?_r=0) via [http://news.google.com/](https://news.google.com/) [http://www.2breality.com/](http://www.2breality.com/) R,U,Kidding Me?
 
@@ -149,7 +149,7 @@ Is it time to put a Fence at the end of the Driveway?
  20160918; 12:57 Let's Play with Reality : [1112223332Day](https://www.google.com/webhp?hl=en&tab=nw#newwindow=1&hl=en&q=2breality)  
  20160918; 11:23 [2BRNews2](http://www.2breality.com/2brnews2.html), 2 Much Characters for [@Tiwtter](https://twitter.com/) so might as well put it here: [birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow](AM 2BReality birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow, Thank You.)
 
-20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis                                                                                                                                                                                                    
+20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis                                                                                                                                                                                                      
  ](http://topdocumentaryfilms.com/the-nazis-a-warning-from-history/)-warning-from-history/
 
 Shall we drink Prune Juice or eat Pizza: The world need to decide: [@2BReality](https://twitter.com/2BReality) LoL  
