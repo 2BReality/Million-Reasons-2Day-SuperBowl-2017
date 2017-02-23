@@ -4,6 +4,10 @@
 
 # ![](/assets/2BReality Logo2.gif) The World Working Together\_\_\_\_\_\_\_\_,4Ever.
 
+# We really need to cut the dogs hair covering it's eyes, It's snout must B sore.
+
+# GNews 2/22/17/8:46pm [https://news.google.com/nwshp?hl=en&tab=wn](#gnews-22217846pm-httpsnewsgooglecomnwshphlentabwn)
+
 # [wiki/Mission\_statement](https://en.wikipedia.org/wiki/Mission_statement)
 
 # The Penny is worse than your mother. so say U.
