@@ -6,9 +6,9 @@
 
 # 170306: The choices one makes will forever be in their vision;
 
-
-
 [https://www.amazon.com/gp/product/B01CG8NFQO/ref=oh\_aui\_detailpage\_o00\_s00?ie=UTF8&psc=1](https://www.amazon.com/gp/product/B01CG8NFQO/ref=oh_aui_detailpage_o00_s00?ie=UTF8&psc=1)
+
+The Trump Road the Last Six Months. As of 170306..![](/assets/The Trump Road 362017 91415 PM.jpg)
 
 # [http://nos.nl/artikel/2161604-overnamestrijd-telegraaf-begint-op-een-realityshow-te-lijken.html](#170306-httpnosnlartikel2161604-overnamestrijd-telegraaf-begint-op-een-realityshow-te-lijkenhtml)
 
@@ -189,7 +189,7 @@ Is it time to put a Fence at the end of the Driveway?
  20160918; 12:57 Let's Play with Reality : [1112223332Day](https://www.google.com/webhp?hl=en&tab=nw#newwindow=1&hl=en&q=2breality\)  
  20160918; 11:23 [2BRNews2]\(http://www.2breality.com/2brnews2.html\), 2 Much Characters for [@Tiwtter]\(https://twitter.com/\) so might as well put it here: [birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow]\(AM 2BReality birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow, Thank You.)
 
-20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis                                                                                                                                                                                                                                                                                            
+20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis                                                                                                                                                                                                                                                                                              
  ](http://topdocumentaryfilms.com/the-nazis-a-warning-from-history/)-warning-from-history/
 
 Shall we drink Prune Juice or eat Pizza: The world need to decide: [@2BReality](https://twitter.com/2BReality\) LoL  
