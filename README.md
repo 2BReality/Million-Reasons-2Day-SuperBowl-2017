@@ -8,6 +8,8 @@
 
 [https://www.amazon.com/gp/product/B01CG8NFQO/ref=oh\_aui\_detailpage\_o00\_s00?ie=UTF8&psc=1](https://www.amazon.com/gp/product/B01CG8NFQO/ref=oh_aui_detailpage_o00_s00?ie=UTF8&psc=1)
 
+[Why can't? "2BReality", Just Be Good? Pls Reply. Ty.](https://twitter.com/2BReality/status/838963276302143488)
+
 The Trump Road the Last Six Months. As of 170306..Here. Let's all ride the Wave? Instruction below. Yikes,,,,,,,&lt;&lt;&lt;&lt;&lt;:\)![](/assets/The Trump Road 362017 91415 PM.jpg)
 
 # [http://nos.nl/artikel/2161604-overnamestrijd-telegraaf-begint-op-een-realityshow-te-lijken.html](#170306-httpnosnlartikel2161604-overnamestrijd-telegraaf-begint-op-een-realityshow-te-lijkenhtml)
@@ -28,9 +30,9 @@ The Trump Road the Last Six Months. As of 170306..Here. Let's all ride the Wave?
 
 # [2BSpecial2Day](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=2BSpecial2Day&*).
 
-## [2CBetter](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=2CBetter&*)![](/assets/SAM_2CBetter \(3\).JPG\)
+## [2CBetter](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=2CBetter&*\)![]\(/assets/SAM_2CBetter \(3\).JPG\)
 
-# [Animation Video Links of Each Executive Order by year ](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=Animation+Video+Links+of+Each+Executive+Order+by+year&*)would be good today. [Make it So \# 1](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=Make+it+So+%23+1&*). The Budgets could be \#2.
+# [Animation Video Links of Each Executive Order by year ](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=Animation+Video+Links+of+Each+Executive+Order+by+year&*\)would be good today. [Make it So # 1]\(https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=Make+it+So+%23+1&*). The Budgets could be \#2.
 
 ## Does Alexa know what a press briefing is?
 
@@ -189,7 +191,7 @@ Is it time to put a Fence at the end of the Driveway?
  20160918; 12:57 Let's Play with Reality : [1112223332Day](https://www.google.com/webhp?hl=en&tab=nw#newwindow=1&hl=en&q=2breality\)  
  20160918; 11:23 [2BRNews2]\(http://www.2breality.com/2brnews2.html\), 2 Much Characters for [@Tiwtter]\(https://twitter.com/\) so might as well put it here: [birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow]\(AM 2BReality birther? the time is wasted, Who gives a fuck at this point? Please comment on your reality of 2Day to help make 2BReality of 2Day the Reality of 2Morrow, Thank You.)
 
-20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis                                                                                                                                                                                                                                                                                                  
+20160916; 20:44 Hello Are you there? Yesterday 2 Day: [topdocumentaryfilms.com/the-nazis                                                                                                                                                                                                                                                                                                    
  ](http://topdocumentaryfilms.com/the-nazis-a-warning-from-history/)-warning-from-history/
 
 Shall we drink Prune Juice or eat Pizza: The world need to decide: [@2BReality](https://twitter.com/2BReality\) LoL  
